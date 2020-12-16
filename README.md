@@ -1,2 +1,0 @@
-# NurulWahida
-Individual Assignment
